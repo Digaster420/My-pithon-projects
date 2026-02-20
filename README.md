@@ -1,1 +1,1 @@
-I'm a beginner and I sore my projects here
+I'm a beginner and I store my projects here
